@@ -1,7 +1,7 @@
 # Lore
 
 ## Ironlands
-The Ironlands were formed when a terraformed interstellar vessel was forced to land on our planet.  It crashed into an icy northern island group, destroying many of the central islands.  The islands to the southeast became the barrier islands, while some larger masses to the north were also spared destruction.  These northern islands are often connected to the Ironlands by sea ice.  High-quality meteor metals, many of them ferrous, stud the land, their craters often weathered and overgrown.
+The Ironlands were formed when a terraformed interstellar vessel was forced to land on our planet.  It crashed into an icy northern island group, destroying many of the central islands.  The islands to the southwest became the barrier islands, while some larger masses to the north were also spared destruction.  These northern islands are often connected to the Ironlands by sea ice.  High-quality meteor metals, many of them ferrous, stud the land, their craters often weathered and overgrown.
 
 ## Old Ones
 The original crew of the vessel went mad during their space journey, as did the central control AI that administers the ship/continent.  These are what we call The Broken.
