@@ -35,11 +35,16 @@ The arrival of this new continent has awakened ancient slumbering demon lords fr
 * Seeks vengeance upon Niles
 
 ## Gunther's background
-* Wilderness man - fled here to ecape the horrors of humanity
-* Encountered an elven druid in the forests
-  * Told him of an Ash Bear who could grant magical powers
+* Wilderness man - fled here to escape the horrors of humanity
+  * Has been making a living by hunting and trapping animals and selling furs
+  * Typically trades and resupplies at the Red Falls outpost
+* Has a sister Bronwen who followed to the Ironlands.
+  * She married and settled in Warm Spring with her husband and 2 children
+* Encountered a dying elven druid in the forests
+  * Told Gunther of the Ash Bear that had surprise attacked him 
+  * Taught Gunther to bind the spirits of animals to their pelts
   * Died from terrible wounds
-* Seeks to understand more about this land and the history of the elves.
+* Seeks to understand more about this land and the history of the elves
 
 
 
