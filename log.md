@@ -34,3 +34,58 @@ This task proves challenging, however, as during the night the bear has regained
 
 They ambush the bear in the cavern, and another hard-fought battle ensues, in which Gunther is severely wounded.  That night evidence of a serious infection begins to emerge, and the two spend the night damaged, ill-supplied, and beset by prowling carrion creatures.  A chill wind laden with the stench of filth blows through the cavern, and an aura of doom hangs about the place.
 
+## Session 2
+
+The pair leaves the cave and begin a journey back toward the Three Sisters, intending to retrace ther steps.  Gunther grows frustrated with Dagobert's fixation on killing Niles, and draws from him Dagobert's account of his history with Niles.
+
+During the journey, a conspiracy of ravens begins following them.  
+
+That evening, Gunther's infection grows markedly worse.  Dagobert goes hunting in the long northern summer twilight, while Gunther - beginning to lose touch with reality - attempts a moon ritual to enchant the new bear pelt.  The ritual succeeds, but when Dagobert returns he find Gunther curled up and raving about the eyes in the trees.  He is *Shaken*.
+
+Dagobert decides that they need to leave the Deep Wilds ASAP, and sends Falco to scout the area.  They find their way to a blighted, withered plain covered in the skeletons of dead trees.
+
+After several hard days of travel, with Gunther doing little better and the ravens still following, they arrive at a fort (wooden, motte and palisade).  This is the first Broken settlement ever recorded by men - previous contact has been more fleeting.  The manage to communicate with the Broken via miming and drawings in the dirt, and make a favorable impression with the gift of one of the brain vats from the Three Sisters installation, as well as Gunther's now-unused pipe.
+
+The Broken help bring Gunther back from the edge of oblivion with balms and a shamanic tent full of Viking Space Mushroom vapors; however, there is little time for full healing. The Broken are also freaked out by the ravens because they know it means a Varou warband is close behind.  They show enlist the aid of the two Ironsworn in setting an ambush in a ravine, with the Ironsworn as bait.  They take them out in the dark of night, but due to the short nights, a raven is still able to spot them.  Dagobert's Falco kills it, but it may not have been enough...
+
+The pair camps, lying in wait for the Varou, with Falco spotting.  The Varou, thanks to their Raven, manage avoid Falco's eyes and come upon them suddenly, forcing them to abandon their camp gear.  The Varou chase them away from the ravine and fort, but in a valiant maneuver the pair gallop their horses hard and turn the chase back on track, cutting so close that Dagobert delivers a crushing blow, killing the shaman.
+
+They reach the ravine.  Gunther braces himself ready to defend and retreat.  Dagobert leaps from his horse and discovers a precariously balanced, large boulder.  He rolls this boulder into four attackers who are heading straight for Gunther, killing three.  Gunther is able to retreat down the ravine and climb up a wall.  The Varou are hopelessly ambushed, and are driven before the Broken.  
+
+A single Varou Berserker who dodged the boulder follows Gunther down the ravine, slaying Broken who attack him from above.  Gunther and Dagobert have just finished off their foes up top when the berserker appears and attacks Gunther.  Dagobert throws a dagger, which knocks the berserker's falchion from his hand moments before it would have hit Gunther.  Gunther instead receives a wicked four-claw scar on his face.  Gunther defends against the berserker's onslaught, but is forced back; the Varou draws a wicked curved dagger.  Dagobert throws a knife, which buries in the berserker's back, but he shrugs it off.  Falco dives from above, distracting the berserker.  Gunther takes advantage and decapitates the Varou with a mighty blow.
+
+The two Ironsworn *Forge a Bond* with an epic handshake.
+
+They recover their camp gear and head back for a party at the fort.  They stay with the Broken for some time, recovering from their wounds and *Forging a Bond* with the community, learning some snippets of the Broken tongue, and teaching the language of their land a well.  They discover that the two people have some mysterious factors in common.  They seem to have some myths and tales with remarkably similar themes and endings.  In addition, the word for the dark night sky above in the Broken tongue is "Abyss".  
+
+During this time they also learn of a new quest.  The Broken give them an old map with a location in the Tempest Hills where they say this clan used to live.  Their city lay beneath a huge (bioengineered) pine tree on an island constructed in the middle of a crater lake.  The lake lies in the middle of a dense pine wood, high atop a craggy hill.  Their grandparents were forced to flee the city by a beast that was killing people in the darkness one by one.  There is a blade which no Broken may wield, but which is said to be able to kill the beast.  
+
+The blade is a sentient vibroblade that is able to channel some of the psionic magic of the mad AI.  Any Broken who handles it can be mind-controlled, but normal humans get at worst a weird spooky feeling.
+
+The two Ironsworn *Swear and Iron Vow* to find the city, retrieve the blade, and slay the fell Beast, bringing back a token of its death so that the Broken clan might return to the land of their forefathers.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
