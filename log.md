@@ -64,8 +64,28 @@ The blade is a sentient vibroblade that is able to channel some of the psionic m
 
 The two Ironsworn *Swear and Iron Vow* to find the city, retrieve the blade, and slay the fell Beast, bringing back a token of its death so that the Broken clan might return to the land of their forefathers.
 
+## Session 3
 
+Stay several weeks at Broken Fort.  Rest, heal wounds.  Falco heals.
+Learn of a legend that there is a Staff of Heimdall that can control the great Overtree.
+Get horses, supplies, new bow, new pipe, spears.
+Swear a vow to one day bring the Broken Fort some of Red Falls' finest tobacco.
 
+Journey north and encounter a mysterious moor, voices on the mist, find that they had traveled much farther in the mist than they thought
+Avoid a dangerous rockslide, violent winds, took a taxing detour across a mountain ridge
+Discovered a plateau where giants are herding mammoths
+Giants are pissed, threaten Ironsworn because they resemble poachers of fur and ivory
+Ironsworn swear a vow on the discarded iron blade of the poachers to hunt them down and kill them and bring back their heads to the giants.  Dagobert is main instigator - excited about murder.
+
+Track the poachers to a cave where several fur hunter and prospector groups have met
+Hang back and follow the group with mammoth ivory that heads south
+Get lucky - their guard falls asleep
+Dagobert slits his throat
+Dagobert slits second guy's throat but he calls out.  Gunther crashes into the camp to help.  Everyone wakes up.  They fight.
+  Dagobert takes a mild axe wound in the back.
+  Gunther wounded by knife?
+Gunther realizes that he knew of the guys they killed
+Gunther now has a mammoth skin to enchant.
 
 
 
