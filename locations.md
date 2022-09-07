@@ -18,3 +18,6 @@ Much is still to be learned for sure.  The huge tree that sits above the entranc
 ## Dark Forest amidst the Tempest Hills
 Haunted by 3 witches.  Home of the Elder Druid, Old Man Oak, keeper of the Staff of Heimdall.  In the middle is the enchanted lake where lies the Great Tree of the Sun and the entrance to the Fallen City Beneath the Lake.
 
+## Giants' Stead on a plateau in the Tempest Hills
+The giants herd mammoths and drink a concoction of fermented mammoth milk. They are occasionally attacked by human poachers who covet their mammoths' pelts and ivory.
+
