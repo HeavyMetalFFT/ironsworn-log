@@ -14,3 +14,6 @@ The first settlement of Broken ever encountered by men.  Wooden palisade and for
 
 ## The Broken city beneath the crater lake
 Much is still to be learned for sure.  The huge tree that sits above the entrance to the city is a bioengineered solar array that provided energy for the city.  It could potentially have served other purposes as well.
+
+## Giants' Stead on a plateau in the Tempest Hills
+The giants herd mammoths and drink a concoction of fermented mammoth milk. They are occasionally attacked by human poachers who covet their mammoths' pelts and ivory.
