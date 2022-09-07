@@ -87,10 +87,31 @@ Dagobert slits second guy's throat but he calls out.  Gunther crashes into the c
 Gunther realizes that he knew of the guys they killed
 Gunther now has a mammoth skin to enchant.
 
+## Session 4
 
+Vow to the giants is fulfilled - Dagobert dumps out a sack full of heads.  Gunther presents the stolen ivory.  The giants call for a toast of fermented Mammoth's milk, and elect two giants to act as guides to the Ironsworn.  A *Bond is Forged*.  The Ironsworn show the giants that Gunther can enchant a mammoth skin, and the giants want one too.  But that night while binding the first skin, Gunther is beset by the wild spirits of the hills, and feels the eyes of the mammoths on him, and is so drained he collapses.
 
+The next day they recuperate with the giants, who are excited for that night's spectacle.  When the moon is full, Gunther calls upon the second mammoth's spirit, but the mammoth, angered at the murder of its fellow, refuses to be bound back to this plane, and grows hostile, causing a wild wind and bellowing voices.  All the mammoths grow wild.  The giants grow afraid and angry, and banish the Ironsworn from their camp, *Breaking their Bond* and refusing to honor their end of the deal.
 
+Gunther is barely clinging to consciousness, and the angry mammoth spiritnow begins shadowing him.  Dagobert throws him over a horse, and gets the two of them to a sheltered area where he makes camp.  Eventually Gunther comes around.
 
+Despite Gunther's weariness, he insists they press on, and they journey further into the hills.  There they once again encounter the strange voices, which Gunther is better able to percieve this time.  He realizes that they are some manifestation of the ancient elven gods who have recognized in the Ironsworn a potential set of tools to counter the forces that threaten their children.  
+
+The touch of the elven gods grants Gunther a mild trance-like state, and he effortlessly guides the pair to a dense grove, in which there lies a clearing set with standing stones.  There sits a masked elf who speaks to them in elven to which Gunther, still enchanted, responds in perfect classical elven.  The elf tells them that the elven gods favor them, and that the way to the forest will be clear.  Upon reaching the forest they must seek out the Elder Druid, Old Man Oak, who guards the Staff of Heimdall.  He points the way, and sees them on their journey.
+
+They finally reach a circle of hills, in the middle of which is a vast, bowl-like valley, with a smaller hill in its center.  The valley and hill are covered in a dark, dense forest.  Barely visible from their vantage on the outer rim is the giant tree in the center of the forest.
+
+Journeying into the forest, they find it silent and foreboding, every sound dying mutely.  Suddenly, a large, tuft-eared squirrel appears, and hurriedly guides them to his master, the Elder Druid, who is a massive animated oak tree.  The Druid ponders the Ironsworn, and reveals (to Gunther, in elven) that the forest has been befouled by three witches: the Witch of Light, the Witch of the Void, and the Witch of Eternity.  They live a cottage that is larger on the inside than on the outside.
+
+(The witches are Broken who became followers of The Beyond). 
+
+The Druid gives the Ironsworn an iron mirror which is coated in magical quicksilver.  The mirror will reveal the true form of anything reflected in it.  He warns them not to let the witches work together - that each can be defeated only on her own, and that the three together are very powerful.  The pair *Swears an Iron Vow* to rid the forest of the three evil witches.  
+
+They set off following a dark, bubbling, viscous river.  Suddenly a gondola appears, in which sits the Witch of Eternity, shaded (even in darkness) by a parasol, and gazing into an orb filled with stars, nebulae, and black holes.  The gondola is poled by shambling forms who rise as if being born from the murk, and then decay as they walk the length of the gondola, crumpling into a rotting heap as they fall off the back.  The Witch calls in a twisting, impossible voice that she has foreseen the deaths of the Ironsworn, and that the Beyond beckons to them.  She then unleases a burst of Beyond-light from her orb which seems to slow time for the Ironsworn, while a crowd of her minions emerge from the river, advancing deliberately.
+
+As the gondola submerges (replete with echoing cackles), Gunther calmly draws his axe and, with a flurry of blows, destroys two zombies and crumpling another's face with his shield.  He then delivers a mighty kick which caves its ribs and sends it toppling backwards into the murk.  Dagobert, meanwhile, feints and trips a charging corpse, then smashes its skull with his club.  Gunther then pulverizes the final zombie, and they move off, idly kicking twitching bits back into the river of death.
+
+The journey along the river seems eternal.  Ghastly visions of pale corpses with luminous staring eyes beset the pair, and they arrive at a dark pond feeling on-edge.  Just beyond the water lies a tiny cottage.
 
 
 

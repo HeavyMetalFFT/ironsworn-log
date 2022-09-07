@@ -14,3 +14,7 @@ The first settlement of Broken ever encountered by men.  Wooden palisade and for
 
 ## The Broken city beneath the crater lake
 Much is still to be learned for sure.  The huge tree that sits above the entrance to the city is a bioengineered solar array that provided energy for the city.  It could potentially have served other purposes as well.
+
+## Dark Forest amidst the Tempest Hills
+Haunted by 3 witches.  Home of the Elder Druid, Old Man Oak, keeper of the Staff of Heimdall.  In the middle is the enchanted lake where lies the Great Tree of the Sun and the entrance to the Fallen City Beneath the Lake.
+
