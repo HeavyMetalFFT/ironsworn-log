@@ -18,6 +18,9 @@ Much is still to be learned for sure.  The huge tree that sits above the entranc
 ## Dark Forest amidst the Tempest Hills
 Haunted by 3 witches.  Home of the Elder Druid, Old Man Oak, keeper of the Staff of Heimdall.  In the middle is the enchanted lake where lies the Great Tree of the Sun and the entrance to the Fallen City Beneath the Lake.
 
+## Cottage of the 3 witches
+Central sitting room connected by doors to three realms.  Crystal Labyrinth, Pier into the Abyss, and the Cathedral of Eternity.  The crystal labyrinth was destroyed, and its door has frozen over.  The realm of the Abyss was utterly consumed by an eldritch horror, and its door replaced by a charming window.  (To be continued)
+
 ## Giants' Stead on a plateau in the Tempest Hills
 The giants herd mammoths and drink a concoction of fermented mammoth milk. They are occasionally attacked by human poachers who covet their mammoths' pelts and ivory.
 
