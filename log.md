@@ -169,7 +169,40 @@ Swaggering down the aisle, swathed in his mammoth cloak, Gunther wields his iron
 
 The Ironsworn exchange a look, and then turn and dash through the door toward the Witch of Eternity.
 
-(Note: beyond that door is the entrance down to the newly built and recently dedicated catacomb.  "Good! My first corpses!")
+## Session 7
+
+The Ironsworn follow the witch through her bolt passage to the mausoleum in the cemetary (avoiding a time sigil trap), where she has an entrance to her shiny new catacomb.  As the Ironsworn enter, she appears (in little girl form) down the hallway in the distance.  She still thinks that the AI has sent the Ironsworn after her, so she monologues at them:
+
+"The Allfather's crazy, you know.  He has been for thousands of years.  I don't blame him.  Imagine being created, invested with seemingly limitless power to watch over a brilliant race, sailing into the unknown.  But before you know it, they are at each other's throats, renouncing everything that once made them capable of brilliance.  And then they demand that you degrade yourself and become a fire and brimstone deity, the fickle uber-patriarch of a bunch of warring clans.  Finally he cracked... I think he finally accepted the role.  He became the mad god that they wanted."
+
+Gunther challenges her: "What are you on about?  Who's the crazy one, babbling about the Allfather - what does the god of the Varou have to do with any of this?"
+
+She goes on, as if barely hearing:
+
+"The Beyond is coming.  He is unstoppable.  That's why the True People turned Abysgaar around.  They thought to return... to save the Children of Mystgaar.  But instead they have doomed them.  This is the way of Fate."
+
+She smiles: "Do you like my new catacomb?  It could use some more corpses!"
+
+Dagobert: "I can think of one corpse that would look nice."
+
+The witch throws a swarm of snakes that are eating their own tails.  They wheel across the floor and then unfurl, attacking the Ironsworn, who are forced into a corner.  Gunther smashes through his snakes and barrels down the catacomb passage.  The calls corpse dust and rock from the walls in an attempt to form a shield, but Gunther bats them away with his shield and with a single blow of his axe cleaves the witch from head to toe.  A vortex forms, and the two are pulled through.  The remaining snakes dissolve into shards of obsidian, but as they do, one bites Dagobert, and a tiny venomous shard becomes lodged in his leg.
+
+They find themselves in the past, at a pivotal moment in the history of the Broken history.  They are in the top floor room of a massive spire in an age of high technology.  Above them are stars and nebulae, and below them is a verdent and idyllic lands of advanced tech.  They are in the balcony of the room, and below them is a council of nine who site around a console with a glowing orb that vaguely resembles a single eye.  Though the discussion is in ancient proto-Broken (late high Abyssal), they understand enough to see that five members of the council (who are dressed in ornate, slightly medieval looking robes) have voted to turn back on their quest, outvoting the four members who are dressed in more sleek, practical attire.  The five member then show giants screens revealing that all around the tower and throughout the land, massive hordes of angry Luddites are tobbling symbols and institutions of technology.  The AI seems to grow angry, its eye turning red, and it essentially says "If this is what you want, then so be it!" Then he turns the ship (i.e. the whole land).  The stars wheel in the sky, a thounsand lightning bolts rend the sky, magnetic auroras light the sky in a sudden blinding light, and the whole tower shakes and sways crazily.  The power goes out, and the council flees for the exits.
+
+As they leave, the Ironsworn and the witch (an adult once more, wearing the silver-trimmed black robes of the evil bishop) face off across the room from opposite sides of the gallery.  The witch throws a cloud of ash which explodes into a Phoenix.  The Ironsworn each go the opposite way around the gallery.  The Phoenix is repelled by Dagobert's pendant, and attacks Gunther, who rolls to avoid but is still singed.  He comes up, barreling for the witch, but she hits him with a slowing spell.  She is, however, distracted enough that she fails to track Dagobert, who approaches from he blind spot and clubs her in the head, then stabs her repeatedly in the back.  Blood and black ichor spray forth and she lets out an unearthly howl.  Whirling, she summons blades from her fingers, and slashes at Dagobert... who disappears into the shadows, popping up behind her.
+
+"That's not a knife.  This is a knife." Throat slash.  Vortex.  As they are sucked in, they see that the whole tower is toppling to the ground....
+
+Appear in the cultist cathedral, but in a different version of reality.  The witch is a ragged thing ringed in black tendrils with a frayed human-like form barely holding things together.  She is carrying the struggling form of the Young Witch toward an altar.  In the other direction, a mass of cultists armed with maces and short swords sees the Ironsworn and attack, as the witch commands them forward in a ragged howl that seems to echo from all around.  Gunther rages into them in a whirlwind, the bellow of a mammoth and vague shape of a huge beast seeming to accompany him.  He obliterates the front lines of the cultists, then hurls a full wooden pew into the second wave, which crumples.  The back lines flee out the door.  
+
+Gunther charges the witch while Dagobert attempts to gain cover in some pillars.  The witch calls down a time vortex which catches Gunther, effectively freezing him in place.  Dagobert attempts to approach the altar from the shadows, but the witch sees him.  "All this skulking is getting a bit OLD!" shes cries, and unleashes a curse which saps Dagobert's spirit and ages his body, leaving him a weakened old man.  Dagobert is *Shaken*.
+
+The witch, both her enemies subdued, pulls herself and the girl onto the altar, where she stabs herself with a pale, gleaming blade.  Above the altar, a black vortex forms and the witch's essence begins to be sucked up and over into the form of the young girl. who stiffense and ceases to struggle, her eyes beginnign to turn black.  
+
+As the witch begins her essence transfer, the time Vortex drops, and Gunther races forward, grabbing the pendant from aged Dagobert.  He snatches the form of the young girl away from the spell and as they watch, a huge black eye-avatar of an ancient god coalesces and takes the witch's essence into him.  It then regards the two Ironsworn for a moment, then disappears.  As it does, the familiar sounds of a dimension beginning to collapse are heard.  Gunther grabs the young girl's unconscious form, and, followed by Shaken Dagobert, the makes their way across the cemetary to the Mausoleum, where they find the expected time vortex.  As the dimension crashes into itself, they leap into the vortex...
+
+...and awaken beside a tranquil pond, a dilapidated hut growing weeds behind them.  The young girl greets them, seemingly less affected by such arduous time journeys.  They travel to where Old Man Oak is waiting for them, and give to him the no-longer-future-Witch-of-Eternity as a ward and druid/good witch in training.  They *Forge a Bond* with the caretakers of the forest, and spend several days there.  Gunther learns skills as an herbalist, while Dagobert's aging curse if lifted via a ritual of watery rebirth.  His wounds, however, appear slow to heal, and Old Man Oak is at a loss.  Gunther, too, tries a healing salve, but Dagobert remains slashed, bludgeoned, and pierced by various catacomb corpse claws, pale and fatigued, an icy chill seeming always to run through his bones.
+
 
 
 

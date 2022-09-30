@@ -7,3 +7,4 @@
 * What else is in the Broken's "Abyss"
 * What will become of murdering Snorri Halverson and his friends
 * The mystical moor voices are the old gods of the elves, who have taken an interest in us
+* The Beyond now knows that we exist and meddled with his witch
